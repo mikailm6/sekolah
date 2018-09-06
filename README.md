@@ -1,0 +1,2 @@
+# sekolah
+buat belajar
